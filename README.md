@@ -1,1 +1,1 @@
-# Gizlilik-Politikasi
+# Gizlilik Politikası
